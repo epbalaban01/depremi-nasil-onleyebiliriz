@@ -1,0 +1,1 @@
+# depremi-nasil-onleyebiliriz
